@@ -8,3 +8,4 @@ oh God! a real real pleasure
 A bit weird at the beginning,
 because functions and object were melting around...
 
+How would you describe the pleasure? is it intense? or exciting ?
